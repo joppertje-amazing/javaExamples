@@ -1,2 +1,1 @@
-# javaExamples
-This is en example.
+# I AM AWESOME MAX IS DUMB HAHAHAHAHAHAHAHAHAHA!!!!!!!!!!!
